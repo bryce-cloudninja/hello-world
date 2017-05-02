@@ -1,3 +1,3 @@
 # hello-world
 
-You wanna know how I got them? So I had a wife. She was beautiful, like you, who tells me I worry too much, who tells me I ought to smile more, who gambles and gets in deep with the sharks. Hey. One day they carve her face. And we have no money for surgeries. She can't take it. I just wanna see her smile again. I just want her to know that I don't care about the scars. So, I do this to myself. And you know what? She can't stand the sight of me. She leaves. Now I see the funny side. Now I'm always smiling.
+Results oriented senior technology professional with extensive hands-on experience as a technology leader. A renaissance man whose expertise spans a significant number of areas, that can draw on multiple bodies of knowledge to solve complex problems. Highly skilled in implementing processes and standards, and developing and implementing enterprise technology solutions. Proficient at attracting and developing top talent and building partnerships.
